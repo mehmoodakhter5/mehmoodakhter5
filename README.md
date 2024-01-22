@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mehmoodakhter5
-- 👀 I’m interested in ...Programming 
+- 👀 I’m interested in ...Gaming 
 - 🌱 I’m currently learning ... Everything
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Through email mehmood@zivallo.pk
